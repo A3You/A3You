@@ -2,7 +2,7 @@
 
 **Full Stack Engineer · AI Engineering como especialidad**
 
-Bilbao / Bizkaia, España
+Madrid, España
 
 [Portfolio](https://toniramos.com) · [LinkedIn](https://www.linkedin.com/in/antonio-ramos) · [Contacto](mailto:dev@toniramos.com)
 
